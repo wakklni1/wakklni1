@@ -2,9 +2,7 @@
 - 👋 Hi, I’m @wakklni1
 - 👀 I’m interested in Content writing
 - 🌱 I’m currently learning SEO Effective Content Writing
-- 💞️ I’m working at <a href="https://wakklni.com//" title="شركة وكلني">wakklni.com</a>
-- 🌍 Please Visit My profile <a href="https://wakklni.com//author/user-name/" title="your name">شركة وكلني للتسويق الإلكتروني والبرمجة </a>
-- 
+- 💞️ I’m working at <a href="https://wakklni.com//" title="شركة وكلني">wakklni.com</a> 
  - ✨ <a href="https://wakklni.com/%d8%a7%d9%81%d8%b6%d9%84-%d8%b4%d8%b1%d9%83%d8%a9-%d8%a8%d8%b1%d9%85%d8%ac%d8%a9-%d9%81%d9%8a-%d8%a7%d9%84%d8%b3%d8%b9%d9%88%d8%af%d9%8a%d8%a9//">افضل شركة برمجة في السعودية</a>
 
 - 🚀 <a href="https://wakklni.com/%d8%a7%d9%81%d8%b6%d9%84-%d8%b4%d8%b1%d9%83%d8%a9-%d8%b3%d9%8a%d9%88-%d9%81%d9%8a-%d8%a7%d9%84%d8%b3%d8%b9%d9%88%d8%af%d9%8a%d8%a9-0966506535043/">افضل شركة سيو في السعودية</a>
